@@ -1,0 +1,2 @@
+# premium-keel-001-keel-laying-and-deadwood-guide
+Keel laying and deadwood management shouldn't require scattered spreadsheets, forum posts, and guesswork. This Notion template gives you the structured system to track every phase of your vessel's foundation with precision and clarity.  The Keel Laying and Deadwood Guide is the best Notion template built specifically for shipwrights, boat builders,
